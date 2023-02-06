@@ -1,0 +1,1 @@
+Peace Chan, a girl who adores Modern Information Technology, has 2+ year of project-based experience in web development with Java and PHP. Possess good dedication to every work in detail and communication skill. Willing to learn new things and hardworking.
